@@ -1,6 +1,6 @@
 # 👋 Oi,sou Adrieli
-## 👀 eu quero abrender griar um saide e jogos
-### 🌱 eu estou aplendento e griar
+## 👀 eu quero abrender criar um sitio e jogos
+### 🌱 eu estou aprendento e criar
 #### 💞️ I’m looking to collaborate on ...
 ##### 📫 adrieli.gardina@escola.pr.gov.br
 
